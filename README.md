@@ -2,7 +2,7 @@
 - 👀 I’m interested in software development 
 - 🌱 I’m currently learning Full stack web development course 
 - 💞️ I’m looking to collaborate on IT Field 
-- 📫 How to reach me vmounisha2001@gmail.com
+- 📫 How to reach me Mounisha Mouni LinkedIn 
 - 😄 Pronouns: 
 - ⚡ Fun fact: ...
 
